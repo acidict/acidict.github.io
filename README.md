@@ -1,1 +1,0 @@
-# acidict.github.io
